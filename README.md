@@ -1,2 +1,0 @@
-# greseligramaticale
-Greseli gramaticale comune
